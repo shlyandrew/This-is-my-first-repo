@@ -4,6 +4,8 @@ I am 37, single, born and raised in FL. I live a quiet home with one roommate in
 
 Link to my Github portfolio [github.com/shlyandrew] (https://github.com/shlyandrew)
 
-## GROWTH MINDSET
+## GROWTH MINDSET :thinkning:
 
 To me, growth mindset is maintaing the compacity to learn something new, knowthing that thing is new to you and that you may fail at it, but keeping a positive mentality and figuring out a way to find the answers to your quiries. Growth Mindset is not allowing yourself to be stuck on a problem for longer than 15 minutes before utilizing a different method to answer the questions. It tis knowing that  should be having a "sandbox experiebce" which is laerning things as I go and not knowing all of the answers at first.
+
+## 3 Ways to Keep Myself in the Growth Mindset :nerd_face:
